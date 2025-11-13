@@ -3,4 +3,4 @@
 
 #### 束ねるは星の息吹、輝ける命の奔流、受けるが良い！「約束された勝利の剣／エクスカリバー／Excalibur」🐀🗡
 
-<img src="https://github.com/sicauYdZheng/LW_snATAC-seq/202506snATAC/sicauC57.png" alt="sicauC57" width="200" />
+<img width="200" height="200" alt="sicauC57" src="https://github.com/user-attachments/assets/2a4138c6-bd76-43f4-b7cd-88776e993b81" />
