@@ -1,0 +1,1 @@
+### Our manuscript, titled 'Dissecting chromatin accessibility profiles of anatomically distinct skeletal muscles and different breeds in pigs at single-nucleus resolution'has been accepted for publication in the Journal of Integrative Agriculture (JIA).
