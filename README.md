@@ -4,4 +4,4 @@
 #### 束ねるは星の息吹、輝ける命の奔流、受けるが良い！「約束された勝利の剣／エクスカリバー／Excalibur」🐀🗡
 
 
-[<img src="[https://github.com/sicauYdZheng/annotatePeak_c57/raw/chipseeker_anno/saber.png](https://github.com/sicauYdZheng/LW_snATAC-seq/blob/202506snATAC/sicauC57.png)" alt="saber" width="200" />](https://github.com/sicauYdZheng/LW_snATAC-seq/blob/202506snATAC/sicauC57.png)
+[<img src="[https://github.com/sicauYdZheng/annotatePeak_c57/raw/chipseeker_anno/saber.png](https://github.com/sicauYdZheng/LW_snATAC-seq/blob/202506snATAC/sicauC57.png)" alt="sicauC57" width="200" />](https://github.com/sicauYdZheng/LW_snATAC-seq/blob/202506snATAC/sicauC57.png)
